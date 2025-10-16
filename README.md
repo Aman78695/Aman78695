@@ -23,7 +23,7 @@ Here are some ideas to get you started:
 
 - 👯 I’m looking to collaborate on **Artificial Intelligence**
 
-- 📫 How to reach me **https://www.linkedin.com/in/md-aman-8b7a58231**
+- 📫 How to reach me ****
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
